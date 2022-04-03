@@ -1,4 +1,4 @@
-# TOMATOWARE-CRACKED-AND-LEAKED-BY-FocusFN-1337
+# TOMATOWARE-SPOOFER-CRACKED-AND-LEAKED-BY-FocusFN-1337
 
 their shityy protection old version got cracked by FocusFN-1337 and decompiled by FocusFN-1337 as well
 here is download link and the drivers are detected and add your own driver and you should be good
